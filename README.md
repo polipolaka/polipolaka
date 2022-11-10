@@ -1,4 +1,4 @@
-eu sou poliana 
+
 moro em campo do tenente 
 tenho 16 anos 
 nasci dia 15.09.2006
@@ -14,15 +14,19 @@ sou do mes de setembro
 nome da minha mae janete
 nome dos meu pai gilson
 tenho 3 irmaos 
-
+eu sou poliana 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 eu sou poliana 
+- 🌱moro em campo do tenente 
+- 👯 tenho 16 anos
+- 🤔 nasci dia 15/09/2006
+- 💬 gosto muito de nadar
+- 📫 gosto de hinos gospeis
+- 😄sonho em viajar pra gramado
+- ⚡ sou evangelica 
+--sonho em ter saveiro cross g5
+
+
+
+
